@@ -1,0 +1,1 @@
+# termos-de-servi-o-SolveZ
